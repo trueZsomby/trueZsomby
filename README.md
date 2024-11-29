@@ -1,0 +1,2 @@
+trueZsomby
+- 🚀zeasyScripts FiveM
